@@ -1,1 +1,0 @@
-# pedr-o-do-gua-u
